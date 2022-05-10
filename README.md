@@ -1,0 +1,1 @@
+# static-s-n-f-ve-yeleri-projesi
